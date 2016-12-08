@@ -1,2 +1,3 @@
 # Indians-culture
 indians culture for the food....
+Maharashtrian (or Marathi) cuisine encompasses the cooking styles, traditions and recipes associated with the cuisine of the Marathi people from the state of Maharashtra in India.
